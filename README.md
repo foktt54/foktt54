@@ -6,3 +6,4 @@
 - so and names of games forks
 - bellow for bella on eclipse
 - germany vpn conferention confirm
+- education stile
