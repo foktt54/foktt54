@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @foktt
-- 👀 I’m interested in app
+- 👀 I’m interested in app frame glory
 - 🌱 I’m currently learning books
 - 💞️ I’m looking to collaborate on the my home.
 - i work at home too, and office engineer
