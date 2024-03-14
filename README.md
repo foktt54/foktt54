@@ -8,5 +8,5 @@
 - germany proxy conferention confirm
 - education stile
 - forgotten ice cream
-- low price
+- low price scalabity
 - cielo ohbaby three
