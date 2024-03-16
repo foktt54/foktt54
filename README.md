@@ -6,7 +6,7 @@
 - so and names of games forks
 - bellow for bella on eclipse
 - germany proxy conferention confirm
-- education stile
+- education stilezed
 - forgotten ice cream
 - low price scalabity
 - cielo ohbaby three numbers
