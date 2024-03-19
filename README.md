@@ -7,6 +7,6 @@
 - bellow for bella on eclipse
 - germany proxy conferention confirm
 - education stilezed
-- forgotten ice cream baby
+- forgotten ice cream baby property
 - low price scalabity
 - cielo ohbaby three numbers
