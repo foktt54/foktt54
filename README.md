@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning books
 - 💞️ I’m looking to collaborate on the my home.
 - i work at home too, and office engineer
-- so and names of games forks
+- so and names of games forks him
 - bellow for bella on eclipse ender
 - germany proxy conferention confirm
 - education stilezed plohoy boec nevid
