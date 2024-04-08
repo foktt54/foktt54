@@ -8,5 +8,5 @@
 - germany proxy conferention confirm
 - education stilezed plohoy boec nevid
 - forgotten ice cream baby property
-- low price scalabity and security
+- low price scalabity and security stuff
 - cielo ohbaby three numbers two month
