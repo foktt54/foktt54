@@ -2,7 +2,7 @@
 - 👀 I’m interested in app frame glory
 - 🌱 I’m currently learning books stoik
 - 💞️ I’m looking to collaborate on the my home.
-- i work at home too, and office engineer
+- i work at home too, and office engineer sonya
 - so and names of games forks him
 - bellow for bella on eclipse enderman
 - germany proxy conferention confirm
