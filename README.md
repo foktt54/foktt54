@@ -10,4 +10,4 @@
 - forgotten ice cream baby property
 - low price scalabity and security stuff
 - cielo ohbaby three numbers two month
-- base onchain daily
+- base onchain daily clime
