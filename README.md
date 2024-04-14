@@ -7,7 +7,7 @@
 - bellow for bella on eclipse enderman
 - germany proxy conferention confirm
 - education stilezed plohoy boec nevid
-- forgotten ice cream baby property
-- low price scalabity and security stuff
+- 💞️ forgotten ice cream baby property
+- 💞️ low price scalabity and security stuff
 - cielo ohbaby three numbers two month
 - base onchain daily clime
