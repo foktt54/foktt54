@@ -12,4 +12,4 @@
 - cielo ohbaby three numbers two month
 - base onchain daily clime follow me
 - hmm5 player come stile moni talks green
-- under radar plan B forget
+- under radar plan B forget for day
