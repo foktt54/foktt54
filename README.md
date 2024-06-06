@@ -13,7 +13,7 @@
 - base onchain daily clime follow me chanel
 - hmm5 player come stile moni talks green
 - under radar plan B forget for day chocolate
-- week streat shelly bunfy buuble roman
+- week streat shelly bunfy buuble roman config
 - lux count 220V electra coffee and cake
 - la cremo ice breaD klever south park
 - RTF token time line
