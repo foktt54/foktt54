@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the my home.
 - i work at home too, and office engineer sonya
 - so and names of games forks him listof
-- bellow for bella on eclipse pocker
+- bellow for bella on eclipse pocker rules
 - germany proxy conferention confirm discret
 - education stilezed plohoy boec nevid base
 - 💞️ forgotten ice cream baby property wine
