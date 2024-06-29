@@ -6,7 +6,7 @@
 - so and names of games forks him listof
 - bellow for bella on eclipse pocker main rules
 - germany proxy conferention confirm discret
-- education stilezed plohoy boec nevid base
+- education stilezed plohoy tobot boec nevid base
 - 💞️ forgotten ice cream baby property wine
 - 💞️ low price scalabity and security stuff
 - cielo ohbaby three numbers two month dust
