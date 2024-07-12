@@ -12,7 +12,7 @@
 - cielo ohbaby three numbers two month dust2
 - base onchain daily clime follow me chanel work
 - hmm5 player come stile moni talks green shark block
-- under radar plan B forget for day chocolate
+- under radar plan B forget for day chocolate now
 - week streat shelly bunfy buuble roman config
 - lux count 220V electra coffee and cake freez
 - la cremo ice breaD klever south park shark joe
