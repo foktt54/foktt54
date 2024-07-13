@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @foktt hp lest
 - 👀 I’m interested in app frame glory
-- 🌱 I’m currently learning books stoik
+- 🌱 I’m currently hi learning books stoik
 - 💞️ I’m looking to collaborate on the my home.
 - i work at home too, and office engineer sonya
 - so and names of games forks him listof
