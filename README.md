@@ -7,7 +7,7 @@
 - bellow for bella on eclipse pocker main rules
 - germany proxy conferention confirm discret
 - education stilezed plohoy tobot boec nevid base
-- 💞️ forgotten ice cream baby property wine
+- 💞️ forgotten ice cream baby property wine earn
 - 💞️ low price scalabity and security stuff languange
 - cielo ohbaby three numbers two month dust2
 - base onchain daily clime follow me chanel work
